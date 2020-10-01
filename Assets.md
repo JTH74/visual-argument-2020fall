@@ -1,5 +1,4 @@
-Black man running
-Cops in swat gear
+Black captured by cops photographed by me
 Beat up street
-Mask
+Mask Free image found online
 car on fire
